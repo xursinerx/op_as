@@ -1,0 +1,1 @@
+Orientaatiokurssia varten tälläine hommeli
